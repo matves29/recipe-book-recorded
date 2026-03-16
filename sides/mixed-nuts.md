@@ -5,7 +5,7 @@
 
 - 1 cup of almonds
 - 1 cup of macadamia nuts
-- 1 cup of hazelnuts
+- 1/2 cup of hazelnuts
 
 ## Instructions
 
